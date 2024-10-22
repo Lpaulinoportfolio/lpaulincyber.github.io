@@ -1,1 +1,0 @@
-# lpaulincyber.github.io
